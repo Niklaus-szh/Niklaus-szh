@@ -1,1 +1,0 @@
-# Niklaus-szh
